@@ -1,1 +1,1 @@
-j{hž˜¥É§¯™«-zºÞiÙž™×µçbµÊ'~(
+anton-pilyaev>master>readme.md&.editconfig
