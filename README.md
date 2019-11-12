@@ -1,1 +1,0 @@
-anton-pilyaev>master>readme.md&.editconfig
